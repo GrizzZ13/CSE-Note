@@ -2,5 +2,3 @@
 
 自行整理，可能有错漏，欢迎指出
 
-Contact me : [Wang Haotian](Grizzy@sjtu.edu.cn)
-
